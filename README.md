@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CryptoMystery
-- 👀 I’m trust minimization maximalist and crypto enthusiast.
+- 👀 Trust minimization maximalist and crypto enthusiast.
 - 📫 How to reach me:
 -- Telegram channel: https://t.me/crypto_mystery
 -- Twitter: https://twitter.com/CryptoMystery1
