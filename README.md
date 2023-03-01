@@ -2,7 +2,7 @@
 - 👀 Trust minimization maximalist and crypto enthusiast.
 - 📫 How to reach me: <br>
 -- Telegram channel: t.me/cryptorocky <br>
--- Twitter: twitter.com/CryptoRockyOne
+-- Twitter: twitter.com/CryptoRockyOne <br>
 -- YouTube: youtube.com/@cryptorocky
 
 
